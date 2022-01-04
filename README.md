@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @raijuinu
+- 👋 Hi, we are @raijuinu team!
 - 📫 Visit: https://www.raijutoken.com/
 
 <!---
